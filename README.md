@@ -1,1 +1,0 @@
-# AyaanFarrukh-About-Me-
